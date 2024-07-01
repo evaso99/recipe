@@ -9,4 +9,4 @@ Ingredients
 3/4 teaspoon Baking Soda
 3/4 teaspoon Salt
 2 cups Chocolate Chips
-2 cups Walnuts roughly chopped
+2 cups Walnuts or other nuts roughly chopped
